@@ -27,3 +27,13 @@ Super Dento / Super Mario modified version 👇
 https://01a06c47-e948-7dd2-9878-94a6a80214a7.arena.site/
 
 
+Photo Flipbook 👇
+
+https://01a06d77-6007-7808-bec0-37c8c85b57df.arena.site/
+
+
+Hayamimi Speech to Text ( english + japanese so could be confusive to use) 👇
+
+https://01a06d8a-ce66-79a2-ad42-b1761cf1037f.arena.site/
+
+
