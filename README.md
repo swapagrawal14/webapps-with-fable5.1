@@ -37,3 +37,8 @@ Hayamimi Speech to Text ( english + japanese so could be confusive to use) 👇
 https://01a06d8a-ce66-79a2-ad42-b1761cf1037f.arena.site/
 
 
+Chess game 👇
+
+https://01a07218-84c6-7211-a21a-88ffd4c844d4.arena.site/
+
+
