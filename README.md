@@ -46,3 +46,9 @@ Train Game in ink stickman style 👇
 
 https://01a0ca2d-c400-7e08-95d5-241bc3c2e574.arena.site/
 
+
+
+Catch the thieves game Ink animation style 👇
+
+https://01a0ce96-d27b-7988-9866-191184f1139f.arena.site/
+
